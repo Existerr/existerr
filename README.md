@@ -1,4 +1,3 @@
-Python enthusiast
-
+Python enthusiast<br>
 Discord: Vic#6516
 
