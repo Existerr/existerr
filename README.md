@@ -1,3 +1,3 @@
 Python enthusiast<br>
-Discord: Existerr
+Discord: Everythingsounreal
 
